@@ -1,0 +1,1 @@
+# Malumotlarga-Ishlov-berish
